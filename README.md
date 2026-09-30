@@ -1,0 +1,2 @@
+# premium-damascene-001-gold-damascene-inlay-technique
+You've watched damascening videos, but you're lost when it comes to actually organizing your gold inlay workflow—no structured approach, no progress tracking, no way to reference techniques when you need them most. The Gold Damascene Inlay Technique Guide solves this by giving you a complete Notion system that transforms scattered knowledge into a
